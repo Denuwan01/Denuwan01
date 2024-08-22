@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **denuwannammuni@gmail.com**
 
-- ⚡ Fun fact **I am simple funny guy**
+- ⚡ Fun fact **I am simple guy**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
